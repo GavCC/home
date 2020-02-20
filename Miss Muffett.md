@@ -9,8 +9,9 @@ She was eating:
  1. Curds 
  2. Whey.
 
- The girl admitted to 
+ The girl told me she suffered from arachnophobia.
+
+I had to point out the spider next to her.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDU3NTI5ODEsLTE4NjMwNTg1MzFdfQ
-==
+eyJoaXN0b3J5IjpbNjM3NDcwNDY4XX0=
 -->
