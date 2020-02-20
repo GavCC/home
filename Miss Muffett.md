@@ -9,7 +9,8 @@ She was eating:
  1. Curds 
  2. Whey.
 
- I had to let it pass.
+ The girl admitted to 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NjMwNTg1MzFdfQ==
+eyJoaXN0b3J5IjpbLTExNDU3NTI5ODEsLTE4NjMwNTg1MzFdfQ
+==
 -->
